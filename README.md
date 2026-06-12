@@ -14,7 +14,6 @@ https://github.com/user-attachments/assets/6ff08b0a-5d70-4ad0-81f1-dc5065ceb75d
 
 
 
-https://github.com/user-attachments/assets/0010d833-88b4-4316-814c-b18ec421885d
 
 
 ## 🛠️ Kullanılan Donanım Bileşenleri
